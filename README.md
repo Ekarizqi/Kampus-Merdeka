@@ -1,3 +1,3 @@
 # Kampus-Merdeka
 Seputar Kampus Merdeka
-##Eka Rizqi M.S
+## Eka Rizqi M.S
